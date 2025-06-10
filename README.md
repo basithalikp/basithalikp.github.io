@@ -1,4 +1,4 @@
-# Hi, I'm Basith Alikp 👋
+# Hi, I'm Basith Ali KP 👋
 
 🎓 **BTech CS Student**  
 💻 **Programmer | Enthusiast | Lifelong Learner**
